@@ -1,1 +1,2 @@
-.gg/git
+i love men
+im gay
