@@ -1,2 +1,1 @@
-i love men
-im gay
+ok
